@@ -142,7 +142,7 @@ Termux / Kali / Ubuntu / Windows
 **Sachin Ser** | [HackPath](https://github.com/sachin-null)
 
 - GitHub: [@sachin-null](https://github.com/sachin-null)
-- Instagram: [@sachin_ser](https://instagram.com/sachin_ser)
+- Instagram: [@sachin_ser](https://www.instagram.com/_sachin_ser_90?igsh=MWg2eTQxcTZhaGRkeA==)
 
 ---
 
